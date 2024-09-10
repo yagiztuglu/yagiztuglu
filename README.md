@@ -3,7 +3,7 @@
 **I am Hüseyin Yağız TUĞLU**  
 18 year old
 
-Hacettepe Univercity Mechanical Engineering Student
+Hacettepe University Mechanical Engineering Student
 
 
 
